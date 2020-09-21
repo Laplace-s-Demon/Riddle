@@ -12,5 +12,7 @@ Um poeta romano e um florentino,
 desbravam as profundezas do abismo.
 Qual o nome do meu livro?
 
+(A resposta não contém artigo no início.)
+
 (Pergunta 1)
 
